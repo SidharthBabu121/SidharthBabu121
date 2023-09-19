@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sidharthbabukish121@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/SidharthBabu121/Resume/blob/main/resume-1.pdf](https://github.com/SidharthBabu121/Resume/blob/main/resume-1.pdf)
+- 📄 Know about my experiences [here](https://github.com/SidharthBabu121/Resume/blob/main/Sidharth_Babu_resumeCV.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
